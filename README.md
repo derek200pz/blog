@@ -3,6 +3,8 @@ Minutiae is the Latin plural of minutia: a small detail. I often direct a lot of
 
 I prefer this to social media because there are no expectations here, and I have more control over the format.
 
+My partner Kylea informed me that based on this bio, what I'm creating is basically a Tumblr page.
+
  ~ Derek Lopez, Aug 11 2023
 
  --------------------------
